@@ -7,3 +7,4 @@
 4. Doomsday
 5. Deadshot
 6. harley quinn
+7. Sukuna
